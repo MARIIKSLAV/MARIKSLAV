@@ -60,3 +60,5 @@
 <p align="left">
 <kbd><b><font color="gray">ー tells sexual jokes</font></b></kbd>
 </p>
+
+<img width="370" height="320" alt="1000021673" src="https://github.com/user-attachments/assets/3b405265-1350-4879-8a1c-4338ebf9a00c" />
