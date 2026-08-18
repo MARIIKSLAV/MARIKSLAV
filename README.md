@@ -3,7 +3,7 @@
 <p align="center">
 <kbd><b><font color="gray">ABOUT ME !</font></b></kbd></p>
 
-<p align="center"><font color="gray">generally referred to as MAR or MARIK, nicknames are encouraged and so are cuds, even with DNI/IWC/IWEC etc. as my status you are allowed to sit with me. half czech, half slovak, but i'd like to talk in english more. pls 4w5, heavily introverted, tmasc / omnisexual. i only watch stuff and dont play much. i come online anytime i feel like it or one of my closest friends are on. be mindful, i am very prone to sensitivity and may take whatever you say seriously, Use tone tags pls.</p>
+<p align="center"><font color="gray">generally referred to as MAR or MARIK, nicknames are encouraged and so are cuds, even with DNI/IWC/IWEC etc. as my status you are allowed to sit with me. half czech, half slovak, but i'd like to talk in english more. ISFP 4w5, heavily introverted, tmasc / omnisexual. i only watch stuff and dont play much. i come online anytime i feel like it or one of my closest friends are on. be mindful, i am very prone to sensitivity and may take whatever you say seriously, Use tone tags pls.</p>
 
 <h1 align="center">ᡕᠵデᡁ᠊╾━ 𖦏</h1>
     
